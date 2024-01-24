@@ -13,7 +13,7 @@
 ### 🔧 Auto Farm Functionality: Sakura Stand Script includes an auto farm feature, automating repetitive tasks and allowing players to focus on other aspects of the game.
 
 ### 🌐 Unique Exploits and Hacks: Sakura Stand Script comes equipped with various other amazing hacks and exploits, enabling players to discover new dimensions in gameplay and gain a competitive edge.
-
+![2024-01-24 21 51 06](https://github.com/noekinders129/Sakura-Stand-Script-Roblox/assets/157638399/916a4976-0d41-40c8-afa1-7e12757665dc)
 ## 🛠 How to Use Sakura Stand Script's Features:
 
 ### 1) Download Sakura Stand Script for free.
